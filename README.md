@@ -1,3 +1,5 @@
+## Please add me as an Agent Developer [Published] on Discord, my discord username is stronganimal#9629
+
 # Uncle Block detected
 
 ## Description
